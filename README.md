@@ -1,5 +1,3 @@
-## Hi there 👋
-
 ## ✨ Hi! I am Anna Sophie
 ### A 26 year old Social Scientist from Germany 🌱 ✨
 
